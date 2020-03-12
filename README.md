@@ -1,0 +1,1 @@
+# Rachunek-rozniczkowy-i-ca-kowy-eTrapez
